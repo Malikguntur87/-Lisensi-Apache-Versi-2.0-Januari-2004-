@@ -1,0 +1,1 @@
+# -Lisensi-Apache-Versi-2.0-Januari-2004-
